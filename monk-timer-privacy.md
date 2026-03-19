@@ -40,7 +40,7 @@ If I need to make any changes to this privacy policy in the future (for example,
 If you have any questions about this Privacy Policy, please do not hesitate to contact me:
 
 - **Email:** [mikailkaradeniz.software@gmail.com](mailto:mikailkaradeniz.software@gmail.com)
-- **Website:** [https://mikailkaradeniz.dev/](https://mikailkaradeniz.dev/)
+- **Linkedin:** [https://mikailkaradeniz.dev/]([https://mikailkaradeniz.dev/](https://www.linkedin.com/in/mikailkaradeniz/))
 
 ---
 
